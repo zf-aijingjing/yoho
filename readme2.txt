@@ -1,3 +1,3 @@
-yoho!
+yoho
 yohoho
 yohohoho
